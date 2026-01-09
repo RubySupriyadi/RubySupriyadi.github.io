@@ -1,1 +1,1 @@
-# RubySupriyadi.github.io
+# RubySupriyadi.co.id
